@@ -5,10 +5,15 @@
 I'm a back-end java developer
 
 very passionate about 
+
 👾technology
+
 🪞design
+
 🍀nature
+
 🥾hiking
+
 ♨️spas
 
 
