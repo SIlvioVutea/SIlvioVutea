@@ -8,6 +8,7 @@ very passionate about :
 🪞design
 🍀nature
 🥾hiking
+♨️spas
 
 
 and i'm a sucker for dogs 🐶🐾
