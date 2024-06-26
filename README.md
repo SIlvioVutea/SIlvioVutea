@@ -1,4 +1,4 @@
-## Hi there i👋, I'm Silvio. 
+## Hi there 👋, I'm Silvio. 
 
 
 
