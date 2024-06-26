@@ -3,7 +3,8 @@
 
 
 I'm a back-end java developer
-very passionate about:  
+
+very passionate about 
 👾technology
 🪞design
 🍀nature
