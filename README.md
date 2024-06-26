@@ -4,6 +4,8 @@
 
 I'm a back-end java developer
 
+
+
 very passionate about 
 
 👾technology
@@ -18,6 +20,8 @@ very passionate about
 
 
 and i'm a sucker for dogs 🐶🐾
+
+
 
 
 ⚡Languages and Tools⚡ git/java/mysql/Spring
